@@ -1,6 +1,7 @@
 # **Profile :- Harsimran Kaur**
 ![Harsimran](IMG-20250807-WA0037.jpg
 ) 
+
 **PERSONAL INFORMATION** 
 
 * **NAME** :- HARSIMRAN KAUR
@@ -10,7 +11,7 @@
 *   **EDUCATION** :- B.TECH IN INFORMATION TECHNOLOGY (IT)
 
 *   **EMAIL ID** :-simranhk.11@gmail.com
-*   
+   
 # **Report of Induction Program 2025**
 # DAY :1 (31-July-2025)
 
@@ -76,7 +77,7 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
 
  **1:00 to 2:00Pm** *(AT Auditorium)*
 
-  _our host **Harleen Kaur** welcomed us and then invite our first orator_
+  _Our host **Harleen Kaur** welcomed us and then invite our first orator_
 
 * **Orator 1 : Satya schlorship team**
 
@@ -97,7 +98,132 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
   
 * **Orator 3** *(Session by Causmic Club and Launch of Induction Activities)* : *our senior took the initiative to educate us about the causmic club and offered valuable guidance as we participated in the induction activity. This lecture was really awesome.*
 
- # **Day: 3 (2-Aug-2025)**
+ # **DAY: 3 (2-Aug-2025)**
+
+**8:30** (At college Auditorium)
+
+_Our host **Taranpreet Kaur** welcome us very sweetly and then she invite our chief on stage._
+
+* **Orator 1**
+
+ **Chief Guest Sr. Gurcharan Singh garewal**( member of shiromani parbandak committiee) : *His motivational words encourged us to stay grounded in values while aspiring for excellence in their academic journey.*
+
+* **Orator 2 Dr. jaswinder Singh** : *He captivated the students with live experiments and innovative apporaches to teaching and learning. His interative method of presentation brought an engaging and joyful learning experience for us,leaving a lasting impression.*
+
+* **Orator 3 DR. Priyadarshini**(Expert in universl human value) :*She spoke about the critical role of ethics and values in the field of engineering, education, and professional pratice. Her session help us understand the importance of empathy, responsibility, and integrity in shapping a meaningful career and life.*
+
+# **DAY :4 (4-Aug-2025)**
+
+**9:30 to 10:30** (English Lecture)
+
+* **Prof. Aastik Sharma**: *His teaching style id unique,helping students gain a profound understanding of literary texts and their contexts.*
+
+**10:30 to 11:30**(Chemistry Lecture)
+
+* **Prof. Karan Bhalla**: *He is a true mentor, guiding students towards achieving their academic and professional goals with dedication and expertise.*
+
+**11:30 to 12:30**(Break)
+
+**12:30 to 3:30**(At Auditorium)
+
+_Our host *Kusum* welcome us and invite Dr. Priyadarshini mam on stage._
+
+* **Orator 1 Dr. Priyadarshini** : *The lecture might have emphasized the significance of incorporeating universal humnan values into daily life, fostering sense of responsibility, and promoting harmony within oneself and with others.*
+  
+* **Orator 2 Session by causmic club** : *The causmic club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.*
+
+# **DAY :5 (5-Aug-2025)**
+
+**9:30 to 10:30**(P2P Lecture) : *The P2P Lecture on c++ by our seniors was incredibly helpful, they have a talent for explaning complex conceots simply.*
+
+**10:30 to 11:30**(BEEE Lecture by prof.Simranjeet Kaur) : *The way she taugth us BEEE was fantastic, her method was engaging and impressive approach.*
+
+**11:30 to 12:30**(physics lecturte) :*She provided a comprehensive overview of the physics lab and workshops, offering valueable insights and practical knowledge that greatly enhanced our understanding of subject.*
+
+# **DAY :6 (6-Aug-2025)**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
