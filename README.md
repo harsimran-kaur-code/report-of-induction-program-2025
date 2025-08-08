@@ -30,7 +30,7 @@
 *After Refreshments we went to college Auditorium. In Auditorium the Atmosphere was Calm and the Stage was beautiful Decorated. We were Warmely Welcomed by **Host Miss. Taranpreet Kaur and Miss. Kusum**, who made sure we felt comfortable and valued. Then he invited Mr. Harsimarn singh on stage.*
 
 * **Orator 1 Mr. Harsimran Singh Jaggi** :  **(ਤੁਸੀਂ GNE ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ ,GNE ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਤਸ਼ਰੀਫ਼ ਲਿਆ ਨੂੰ ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ ,ਜੀ ਆਇਆਂ ਨੂੰ।)** *That lines make us very Happy. Mr. Harsimran Singh Greeted us and provided a comprehensive introdution about the college.*
-! [harsimran singh](IMG_20250808_184135.jpg) 
+![harsimran singh](IMG_20250808_184135.jpg) 
 # **Stars of GNDEC** 
 
 * **Mr. Sangam Arora**
