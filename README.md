@@ -41,7 +41,7 @@ _Mr. Sagam Arora , a proud **CSE** topper and currently placed at **Arguesoft**,
 _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Gurugram ,spoke about his learning and the role of GNDEC played in shapping his future._
 
 **They both inspired us through a motivational video. They encouraged us to pursue our Passions and overcome challenges.**
-
+![Stars](IMG_20250808_184208.jpg) 
 * **Orator 2 MRs. Harpreet Kaur Garewal** (HOD of Applied Science) : *Her lecture made us feel like we were already a part of the GNDEC family. She delivered a deeply insightful and welcoming message , encouraging students to seize every opportunity with passion and discipline.*
 
 * **Orator 3 Dr.Akshay Giddar** (Dean Academics) : *He interacted with the students and guided them on academic planning and institutional culture.* 
