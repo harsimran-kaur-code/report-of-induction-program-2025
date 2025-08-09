@@ -113,7 +113,8 @@ _Our host **Taranpreet Kaur** welcome us very sweetly and then she invite our ch
 * **Orator 2 Dr. jaswinder Singh** : *He captivated the students with live experiments and innovative apporaches to teaching and learning. His interative method of presentation brought an engaging and joyful learning experience for us,leaving a lasting impression.*
 
 * **Orator 3 DR. Priyadarshini**(Expert in universl human value) :*She spoke about the critical role of ethics and values in the field of engineering, education, and professional pratice. Her session help us understand the importance of empathy, responsibility, and integrity in shapping a meaningful career and life.*
-
+![jaswinde sir, priyadrashini mam](IMG_20250808_184524.jpg
+) 
 # **DAY :4 (4-Aug-2025)**
 
 **9:30 to 10:30** (English Lecture)
