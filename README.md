@@ -52,7 +52,8 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
 ![orators](IMG_20250809_122653.jpg
 ) 
 * **Orator 6 Dr. Sehajpal Singh** (principal of GNDEC) : *His visionary words and encouragement added great value to the day.*
-
+![principle](IMG_20250809_164332.jpg
+) 
 # **Guest of Honour**
 
 * **Shri Ravindra Garg** (Muncipal Corporation, Ludhiana)
