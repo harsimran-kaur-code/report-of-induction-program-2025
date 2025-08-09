@@ -60,7 +60,8 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
 * **En. Rakesh Kumar** (Alumnus of the 1991 Batch) 
 
 *Their impactful words added immense grace and relevance of the occasion.*
-
+![guest](IMG_20250809_164455.jpg
+) 
 * **Oreator 7 Shri Ashok Singla**(Financial Advisor) : *His Encouraging words gave students a new lens through which to view their future.*
 * 
 **2:00 to 4:00 pm** *(classes)*
