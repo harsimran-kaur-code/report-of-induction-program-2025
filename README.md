@@ -49,7 +49,8 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
 * **Orator 4 Harleen Kaur Garewal** (first year student) : *She Shared her thoughs and inspired her peers with her heartfelt speech.*
 
 * **Orator 5 Dr. Parminder Singh** : *His Charismatic presence and motivational address left the entire auditorium charged with positivity and purpose.*
-
+![orators](IMG_20250809_122653.jpg
+) 
 * **Orator 6 Dr. Sehajpal Singh** (principal of GNDEC) : *His visionary words and encouragement added great value to the day.*
 
 # **Guest of Honour**
