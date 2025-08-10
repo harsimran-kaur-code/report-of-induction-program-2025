@@ -98,7 +98,7 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
  
 * **Orator 2** *(Expert Lecture by  Mr. Arshpreet Singh on Food)* : *He explain the advantages of healthy food. Healthy food does not cause disease , it actually reduce risk of disease in our body.
   The lecture really captured my attention and was very informative.*
-
+![food](IMG_20250810_181550.jpg) 
   **3:00 to 3:30 Pm**
   
 * **Orator 3** *(Session by Causmic Club and Launch of Induction Activities)* : *our senior took the initiative to educate us about the causmic club and offered valuable guidance as we participated in the induction activity. This lecture was really awesome.*
