@@ -160,7 +160,7 @@ _Our host **Kusum** welcome us and invite Gurcharn Singh Garewal on stage_
 
 * **Orator 2 Dr.Lakhvir Singh Khana**:*Upon our admission, he extended warm congratulations and subsequently familiarized us with the Swayam app, highlighting its features and benefits.*
 
-* **Orator 3 Dr. Arvind Tingra**:  *His motivational speech boosted our confidence and sparked a newfound sense of determination.*
+* **Orator 3 Dr. Arvind Dhingra**:  *His motivational speech boosted our confidence and sparked a newfound sense of determination.*
 
 
 
