@@ -155,12 +155,12 @@ _Our host *Kusum* welcome us and invite Dr. Priyadarshini mam on stage._
 **11:30 to 12:30**(Break) 
 
 **12:30 At Auditorium**
+_Our host **Kusum** welcome us and invite Gurcharn Singh Garewal on stage_
+* **Orator 1 Gurcharn Singh Garewal** : *He lightened us about the profound connection between Guru Nanak Dev Ji and our college, GNDec. Learning about this inspiring link filled me with a deep sense of gratitude and privilege. I felt truly blessed to be a part of this esteemed institution, carrying the legacy of Guru Nanak Dev Ji's teachings and values.* 
 
+* **Orator 2 Dr.Lakhvir Singh Khana**:*Upon our admission, he extended warm congratulations and subsequently familiarized us with the Swayam app, highlighting its features and benefits.*
 
-
-
-
-
+* **Orator 3 Dr. Arvind Tingra**:  *His motivational speech boosted our confidence and sparked a newfound sense of determination.*
 
 
 
