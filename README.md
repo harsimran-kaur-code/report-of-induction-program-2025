@@ -102,7 +102,7 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
   **3:00 to 3:30 Pm**
   
 * **Orator 3** *(Session by Causmic Club and Launch of Induction Activities)* : *our senior took the initiative to educate us about the causmic club and offered valuable guidance as we participated in the induction activity. This lecture was really awesome.*
-
+![causmic](IMG_20250810_175907.jpg) 
  # **DAY: 3 (2-Aug-2025)**
 
 **8:30** (At college Auditorium)
