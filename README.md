@@ -147,11 +147,9 @@ _Our host *Kusum* welcome us and invite Dr. Priyadarshini mam on stage._
 
 # **DAY :6 (6-Aug-2025)**
 
+**9:30 to 10:30**(Maths lecture by Prof. Sukhminder Singh) : The math lecture was a game-changer. Our teacher shared fantastic apps that made math enjoyable and interactive . I loved it.
 
-
-
-
-
+**
 
 
 
