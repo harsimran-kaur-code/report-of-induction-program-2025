@@ -92,7 +92,8 @@ _Mr. Arshpreet Singh , the **IT** branch Topper now working at **Airtel** , Guru
 * **Manoj Kumar** :*Mr. Manoj is the one delivering the lecture on satya scholarship program .The satya scholarship program is a merit-cum-means scholarship offered by the Nehru Sidhant Kender trust to support meritorious students from Ludhiana district in pursuing higher education.He shared inforation about satya scholarship like Eligibility,benefits etc.*
 
 * **Manish Kumar** : *He informed us to how to fill satya scholarship application form. He gave us the chance to explore this valueable opportunity.*
-
+![scholarship](IMG_20250810_180305.jpg
+) 
  **2:00 to 3:00pm**
  
 * **Orator 2** *(Expert Lecture by  Mr. Arshpreet Singh on Food)* : *He explain the advantages of healthy food. Healthy food does not cause disease , it actually reduce risk of disease in our body.
