@@ -122,7 +122,7 @@ _Our host **Taranpreet Kaur** welcome us very sweetly and then she invite our ch
 
 **9:30 to 10:30** (English Lecture)
 
-* **Prof. Aastik Sharma**: *His teaching style id unique,helping students gain a profound understanding of literary texts and their contexts.*
+* **Prof. Aastik Sharma**: *His teaching style is unique,helping students gain a profound understanding of literary texts and their contexts.*
 
 **10:30 to 11:30**(Chemistry Lecture)
 
@@ -134,17 +134,17 @@ _Our host **Taranpreet Kaur** welcome us very sweetly and then she invite our ch
 
 _Our host *Kusum* welcome us and invite Dr. Priyadarshini mam on stage._
 
-* **Orator 1 Dr. Priyadarshini** : *The lecture might have emphasized the significance of incorporeating universal humnan values into daily life, fostering sense of responsibility, and promoting harmony within oneself and with others.*
+* **Orator 1 Dr. Priyadarshini** : *The lecture emphasized the significance of incorporating universal humnan values into daily life, fostering sense of responsibility, and promoting harmony within oneself and with others.*
   
 * **Orator 2 Session by causmic club** : *The causmic club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.*
 
 # **DAY :5 (5-Aug-2025)**
 
-**9:30 to 10:30**(P2P Lecture) : *The P2P Lecture on c++ by our seniors was incredibly helpful, they have a talent for explaning complex conceots simply.*
+**9:30 to 10:30**(P2P Lecture) : *The P2P Lecture on C++ by our seniors was incredibly helpful, they have a talent for explaining complex concepts simply.*
 
 **10:30 to 11:30**(BEEE Lecture by prof.Simranjeet Kaur) : *The way she taugth us BEEE was fantastic, her method was engaging and impressive approach.*
 
-**11:30 to 12:30**(physics lecturte) :*She provided a comprehensive overview of the physics lab and workshops, offering valueable insights and practical knowledge that greatly enhanced our understanding of subject.*
+**11:30 to 12:30**(physics lecturte) :*She provided a comprehensive overview of the physics lab and workshops, offering valuable insights and practical knowledge that greatly enhanced our understanding of subject.*
 
 # **DAY :6 (6-Aug-2025)**
 
@@ -155,8 +155,8 @@ _Our host *Kusum* welcome us and invite Dr. Priyadarshini mam on stage._
 **11:30 to 12:30**(Break) 
 
 **12:30 At Auditorium**
-_Our host **Kusum** welcome us and invite Gurcharn Singh Garewal on stage_
-* **Orator 1 Gurcharn Singh Garewal** : *He lightened us about the profound connection between Guru Nanak Dev Ji and our college, GNDec. Learning about this inspiring link filled me with a deep sense of gratitude and privilege. I felt truly blessed to be a part of this esteemed institution, carrying the legacy of Guru Nanak Dev Ji's teachings and values.* 
+_Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
+* **Orator 1 Gurcharn Singh Garewal** : *He enlightened us about the profound connection between Guru Nanak Dev Ji and our college, GNDec. Learning about this inspiring link filled me with a deep sense of gratitude and privilege. I felt truly blessed to be a part of this esteemed institution, carrying the legacy of Guru Nanak Dev Ji's teachings and values.* 
 
 * **Orator 2 Dr.Lakhvir Singh Khana**:*Upon our admission, he extended warm congratulations and subsequently familiarized us with the Swayam app, highlighting its features and benefits.*
 
