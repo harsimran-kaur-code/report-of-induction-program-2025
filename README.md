@@ -163,20 +163,19 @@ _Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
 * **Orator 3 Dr. Arvind Dhingra**:  *His motivational speech boosted our confidence and sparked a newfound sense of determination.*
 ![orators](IMG_20250810_190128.jpg) 
 
- # **DAY :7 ( 7-Aug-2025) 
+ # **DAY :7 ( 7-Aug-2025)** 
 
- _Our host **Harleen Kaur** welcomed us very warmly and then she invited our first orator to the stage. _
+**9:30** _Our host **Harleen Kaur** welcomed us very warmly and then ssheinvited our first orator to the stage. _
  
 * **Orator 1 Dr. Amit kamra** (DMC Incharge) :*His expertise helped us understand the digital landscape and develop effective marketing strategies.*
 
-* **Orator 2 
+* **Orator 2 Dr. Parminder Singh**(Dean Student Welfare): *His encouraging words inspired us to push beyond our limits, believe in ourselves, and strive for greatness.*
 
+* **Orator 3 Dr. Randhir Singh**: *He provided crucial guidance on exam preparation, helping us stay focused and confident.*
 
+**1:30 to 2:30**(P2P lecture) :*The P2P Lecture on c++ by our seniors was imcredibly helpful, they have a talent for explaning complex conceots simply.*
 
-
-
-
-
+**2:30 to 3:30**(Chemistery Lecture) :*He is a true mentor, guiding students towards achieving their academic and professional goals with dedication and expertise.*
 
 
 
