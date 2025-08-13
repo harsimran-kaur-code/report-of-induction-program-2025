@@ -177,10 +177,13 @@ _Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
 
 **2:30 to 3:30**(Chemistery Lecture) :*He is a true mentor, guiding students towards achieving their academic and professional goals with dedication and expertise.*
 
+# **DAY:8 (8-Aug-2025) 
 
+**9:00 to 10:30**(BEEE Lecture)
 
+**Prof. Simranjeet Kaur**: *The way she taugth us BEEE was fantastic, her method was engaging and impressive approach.*
 
-
+**10:30 to 12:00**(Lecture by Prof. Jaswant Singh) :
 
 
 
