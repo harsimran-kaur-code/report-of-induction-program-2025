@@ -183,7 +183,7 @@ _Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
 
 **Prof. Simranjeet Kaur**: *The way she taugth us BEEE was fantastic, her method was engaging and impressive approach.*
 
-**10:30 to 12:00**(Lecture by Prof. Jaswant Singh) :
+**10:30 to 12:00**(Lecture by Prof. Jaswant Singh) :*He clarified the differences between CSE and IT, highlighting their unique focuses, curricula, and career prospects.*
 
 
 
