@@ -163,9 +163,13 @@ _Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
 * **Orator 3 Dr. Arvind Dhingra**:  *His motivational speech boosted our confidence and sparked a newfound sense of determination.*
 ![orators](IMG_20250810_190128.jpg) 
 
+ # **DAY :7 ( 7-Aug-2025) 
 
+ _Our host **Harleen Kaur** welcomed us very warmly and then she invited our first orator to the stage. _
+ 
+* **Orator 1 Dr. Amit kamra** (DMC Incharge) :*His expertise helped us understand the digital landscape and develop effective marketing strategies.*
 
-
+* **Orator 2 
 
 
 
