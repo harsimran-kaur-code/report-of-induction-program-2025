@@ -172,7 +172,7 @@ _Our host **Kusum** welcomed us and invited Gurcharn Singh Garewal to the stage_
 * **Orator 2 Dr. Parminder Singh**(Dean Student Welfare): *His encouraging words inspired us to push beyond our limits, believe in ourselves, and strive for greatness.*
 
 * **Orator 3 Dr. Randhir Singh**: *He provided crucial guidance on exam preparation, helping us stay focused and confident.*
-
+![orator](IMG_20250824_210724.jpg) 
 **1:30 to 2:30**(P2P lecture) :*The P2P Lecture on c++ by our seniors was imcredibly helpful, they have a talent for explaning complex conceots simply.*
 
 **2:30 to 3:30**(Chemistery Lecture) :*He is a true mentor, guiding students towards achieving their academic and professional goals with dedication and expertise.*
